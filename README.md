@@ -10,6 +10,7 @@
 **Nombre:** Luis Alberto Contreras Dales  
 **Cédula:** 1102846541  
 **Programa:** Ingeniería de materiales  
+https://youtu.be/lTnYV23ifVk 
 
 **Nombre:** José Ángel Hernández Cardona  
 **Cédula:** 1000566492  
